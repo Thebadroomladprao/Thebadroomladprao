@@ -1,6 +1,8 @@
 ### Hi there 👋SATTHANAPHAT PRATEEPCHANDANG
 https://www.linkedin.com/in/satthanaphat-prateepchandang-733151296?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
-<!--
+https://thebedroomladprao101.com-bangkok.com/th/
+
+<!--the bedroom ladprao 101
 **Thebadroomladprao/Thebadroomladprao** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 SATTHANAPHAT PRATEEPCHANDANG ytukho99@gmail.com THEBEDROOM 101 Thebedroomladprao101@hotmail.com SATTHANAPHAT PRATEEPCHANDANG thebedroomladprao101@gmail.com THE Bedroom Ladprao 101 CR thebedroomladpraocr@gmail.com PONGSATORN HONTHIP pongsatornhonthip@gmail.com THEBEDROOMLADPRAO101 EXAMPLE
 Here are some ideas to get you started:
